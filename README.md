@@ -1,3 +1,1 @@
-<img src='https://files.catbox.moe/gf24bk.png' width='100%' height='300'> </img>
-<p align='center'> TWEEK </br> " DRIVING W/ MY DARLING ! ,, </br></br> fictkin ,, sixteen</br></br> <a href=https://ko-fi.com/tweeksies/commissions><img src='https://ko-fi.com/img/githubbutton_sm.svg?v=1'> </img> </a>  </br><img src='https://files.catbox.moe/s906ax.png' width='250px' height='250px'></br> it/its & he/him </br> south park , regretevator , 4saken , roblox myths , eddsworld , OCs </p> 
-<img src='https://files.catbox.moe/7hmoth.png' width='100%' height='300'> </img>
+<p align='center'> DAEMON ,, SIXTEEN</br> TAKEN BY TROJAN VIRUS SYS!! </br> fictkin ;; psychotic attachments</br></br> south park , regretevator , happy tree friends , forsaken , eddsworld , roblox myths, oc's </br></br> DNI</br> basic criteria</br> demo/endo systems</br>immature babies</p>
