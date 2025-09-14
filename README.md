@@ -1,3 +1,3 @@
-<img src='https://64.media.tumblr.com/e904f6cc21957ba63338dda2bcd30909/16450b51cf397290-d3/s1280x1920/d9b7cbd94387e78f08b09a7d1a9ffe9ddd781a69.pnj' width='100%' height='140px'> </img>
-<p align='center'> ZAINE / FRONTER'S NAME </br> " DR1V1NG W/ M7 D4RL1NG ! </br></br> DID sys ,, sixteen</br><img src='https://64.media.tumblr.com/d565e04f495ca947c4ed9b86ff5358ad/16450b51cf397290-65/s2048x3072/d1d32490b770621b53da81fdc28408820ddb4c4d.pnj' width='250px' height='250px'></br> it/its & he/him </br> south park , regretevator , 4saken , roblox myths , eddsworld , OCs </p> 
-<img src='https://64.media.tumblr.com/e904f6cc21957ba63338dda2bcd30909/16450b51cf397290-d3/s1280x1920/d9b7cbd94387e78f08b09a7d1a9ffe9ddd781a69.pnj' width='100%' height='140px'> </img>
+<img src='https://files.catbox.moe/gf24bk.png' width='100%' height='300'> </img>
+<p align='center'> TWEEK </br> " DRIVING W/ MY DARLING ! ,, </br></br> fictkin ,, sixteen</br><img src='https://files.catbox.moe/s906ax.png' width='250px' height='250px'></br> it/its & he/him </br> south park , regretevator , 4saken , roblox myths , eddsworld , OCs </p> 
+<img src='https://files.catbox.moe/7hmoth.png' width='100%' height='300'> </img>
